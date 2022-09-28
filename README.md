@@ -1,0 +1,4 @@
+- 👋 meu nome @marquinhos466
+- 👀meu emeil de contato e marcos.lopez@escola.pr.gov.br
+- 🌱 estou interessado em aprender novas linguas de programação
+- 💞️ estou aprendendo linguas de programação JavaScripch e Scrasch
